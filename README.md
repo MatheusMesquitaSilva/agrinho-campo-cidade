@@ -1,1 +1,8 @@
-https://www.canva.com/design/DAGplRjZmSM/Hgk0I0GoKxCfZCShe_TA8g/view?utm_content=DAGplRjZmSM&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h45fe88ee6c
+SOBRE O QUE SE TRATA
+Esse video se trata da importancia do campo para a cidade e da cidade para o campo
+tentando falar da melho forma sobre o que se trata para que todos entendam
+
+O QUE FOI ULTILIZADO
+O programa Gemini para a criação do roteiro
+e o programa canva para ser feito
+
