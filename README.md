@@ -10,4 +10,4 @@ e o programa canva para ser feito
 
 PARA A VISUALIZAÇÃO DO VIDEO
 
-voce deve entrar em A importância da zona rura para urbana e vise versa " e ir em View raw para o download
+voce deve entrar em "A importância da zona rura para urbana e vise versa " e ir em View raw para o download
